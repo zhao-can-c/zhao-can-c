@@ -60,7 +60,6 @@ Feel free to reach out to me via:
 
 - **Email**: [zhaocan_fly@126.com](mailto:zhaocan_fly@126.com)
 - **Email**: [zhaoc@adcc.com.cn](mailto:zhaoc@adcc.com.cn)
-- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/yourprofile)
-- **Twitter**: [Your Twitter Handle](https://twitter.com/yourhandle)
+
 
 Looking forward to connecting with you and exploring opportunities to collaborate! 😊
